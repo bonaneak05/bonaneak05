@@ -1,5 +1,7 @@
-- 👋 Hi, I’m @bonaneak05
+- 👋 Hi, I’m @bonaneak
+- 
 - 👀 I’m interested in NFT
+- 
 - 🌱 I’m currently learning NFT 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me https://twitter.com/Bonaneak2
